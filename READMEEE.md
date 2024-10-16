@@ -1,1 +1,1 @@
-2001.03.16 Park Minsu
+2001.03.16 Minsu Park 
